@@ -1,3 +1,5 @@
+Welcome to GIGAMAX - https://gigamax.ai/
+
 Catch Every Tiny Profits With The Automated Arbitrage Bot
 
 World-Class Security & Risk Management System
